@@ -2,7 +2,7 @@
 - 👀 I’m interested in codeing,gaming and travelling
 - 🌱 I’m currently learning netflix conductor
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 9034101996
+- 📫 How to reach me 8222833378
 
 <!---
 adityasharmaacko/adityasharmaacko is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
